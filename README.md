@@ -1,4 +1,7 @@
-### Hi there 👋
+# Kevin OTC
+**`Photograher & Coder`**
+
+Hi there welcome to my github page! I love to create website with delightful user experiences.
 
 ### Socials
 
